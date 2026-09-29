@@ -1,1 +1,0 @@
-# aizeckk2022.github.io
